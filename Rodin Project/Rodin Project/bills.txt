@@ -1,4 +1,0 @@
-Electricity	rod	400.00	f	
-Electricity	aj	200.00	adfsdfsa	
-Rent	AJ	300.00	04/07/25	
-Electricity		1000.00		
