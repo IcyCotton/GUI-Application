@@ -1,0 +1,2 @@
+Manuscript:
+https://malayancollegesmindanaoo365-my.sharepoint.com/:w:/r/personal/ajrodin_mcm_edu_ph/_layouts/15/Doc.aspx?sourcedoc=%7B64BE9ABD-E81F-4189-AC7B-51B9D482E28A%7D&file=IT%20GUI%20PROJECT.docx&action=default&mobileredirect=true&DefaultItemOpen=1&wdOrigin=OFFICECOM-WEB.APPGALLERY%2CAPPHOME-WEB.JUMPBACKIN&wdPreviousSession=02a1191a-46f5-42df-8ef6-f7be3ce17c44&wdPreviousSessionSrc=AppHomeWeb&ct=1751738907606
